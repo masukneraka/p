@@ -32,7 +32,15 @@ Jadi apakah seorang komunis/sosialis itu termasuk ateis? jawabanya tidak, karena
 
 Bisa saja orang mempelajari sosialisme dan naturalisme tanpa perlu menjadi ateisme mungkin agnostik atau teisme, bila diumpakan beli martabak manis mau pakai mayonais atau bubuk balado, sepenuhnya terpisah.
 
-[Works in Progress]
+> Kalo lu ateis, gimana lu tau benar atau salah ? lu kan ga punya moral?
+
+Bila ada kasus teroris, pernah muncul penyataan seperti ini ga "Teroris yang tak bertuhan" ? Kalo iya tandanya nih narasumber perlu baca ni tulisan.
+Tuhan mungkin benar menjadi pertimbangan lu untuk masuk neraka atau surga (dari tuhan yang mana lu pilih).
+
+Tapi moral adalah pertimbangan lu untuk sesama lu dalam berbuat entah apa itu baik atau engak buat dilakuin dalam kondisi itu. Jika tuhan adalah moral, maka manusia seharusnya tidak punya,keran moral untuk para mortal.
+
+Mungkin bila ada yang menuduh orang ateis merupakan dalang dari berbagai terorisme terhadap agama ? coba baca berita ini dulu deh
+- [Terroris Bom Boston ternyata bukan Ateis](https://www.kompasiana.com/kuswara/5528d9b66ea83460028b45b8/teroris-boston-ternyata-bukan-atheis)
 
 ### MISC
 
@@ -43,7 +51,9 @@ Hal ini memberikan bukti kebebasan agama Nol Besar (UUD 1945 Pasal 29 Ayat 2 , w
 
 [Works in Progress]
 
-### Ateis Eksplisit dan Implisit
+## Ateis Eksplisit dan Implisit
+
+Bila dibagi
 
 [Works in Progress]
 
@@ -52,3 +62,8 @@ Hal ini memberikan bukti kebebasan agama Nol Besar (UUD 1945 Pasal 29 Ayat 2 , w
 
 
 [Works in Progress]
+
+## Referensi
+
+- Bagini, Julian. 2018.Apa itu Ateisme ? Sebuah Pengantar Singkat. Manado. Globalindo.
+- [Kebebasan Beragama di Indonesia](https://rakyatrukun.com/1303/)
