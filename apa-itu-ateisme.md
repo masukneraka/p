@@ -22,8 +22,9 @@ Kalau menurut KBBI (Kamus Besar Bahasa ~~Investor~~ Indonesia), **Ateisme**: pah
 
 Jadi mungkin kalau dibilang ateis dibilang pengikut setan, agak kurang cocok ya sebab setan hanya antagonis dari tuhan dalam drama yang disebut agama * **insert chuaks coki here** *. 
 
-_Back to topic_, Singkat ateisme itu engak percaya atas tuhan dan entitas gaib. Namun 
+_Back to topic_, j ateisme itu engak percaya atas tuhan dan entitas gaib.
 
+### FAQ
 > Bagaimana kok ateis bisa dibilang pengikut komunis dan sebagainya?
 
 Kebanyakan orang menjadi ateis cenderung diinduksi oleh filosofi sekuler: humanisme, rasionalisme dan naturalisme. Jadi tidak ada sifat spesifik dari ateis itu sendiri.
@@ -42,23 +43,23 @@ Tapi moral adalah pertimbangan lu untuk sesama lu dalam berbuat entah apa itu ba
 Mungkin bila ada yang menuduh orang ateis merupakan dalang dari berbagai terorisme terhadap agama ? coba baca berita ini dulu deh
 - [Terroris Bom Boston ternyata bukan Ateis](https://www.kompasiana.com/kuswara/5528d9b66ea83460028b45b8/teroris-boston-ternyata-bukan-atheis)
 
-### MISC
-
-Seorang ateis banyak digambarkan secara suram, jahat dan tidak ada sari moral dalam dirinya, stigma seperti ini umumnya merebak ke nalar orang tua yang menekan anaknya untuk beragama.
-
-Hal ini memberikan bukti kebebasan agama Nol Besar (UUD 1945 Pasal 29 Ayat 2 , wer ar u? dibilang emak ntar masuk neraka) dan lagi pula Agama juga bukan konten anak-anak sama mirip halnya zat adiktif seperti Rokok , Pornografi dan Sakaunya rindu sang pujangga hati xixixi.
-
-
-[Works in Progress]
 
 ## Ateis Eksplisit dan Implisit
 
-Bila dibagi
+Bila ke 2 jenis berdasarkan pembedaa
 
 [Works in Progress]
 
 
 ### Varian isme-isme selain Ateisme
+
+[Works in Progress]
+
+## Keluh Kesah
+
+Seorang ateis banyak digambarkan secara suram, jahat dan tidak ada sari moral dalam dirinya, stigma seperti ini umumnya merebak ke nalar orang tua yang menekan anaknya untuk beragama.
+
+Hal ini memberikan bukti kebebasan agama Nol Besar (UUD 1945 Pasal 29 Ayat 2 , wer ar u? dibilang emak ntar masuk neraka) dan lagi pula Agama juga bukan konten anak-anak sama mirip halnya zat adiktif seperti Rokok , Pornografi dan Sakaunya rindu sang pujangga hati xixixi.
 
 
 [Works in Progress]
