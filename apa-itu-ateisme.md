@@ -1,8 +1,10 @@
 Dituduh komunis, dikucilkan, sulit menikah bahkan diburu oleh kalangan ekstermis. Merupakan ancaman nyata bagi orang yang mengaku dirinya ateis,
-baik ateis "marah" bahkan ateis baru di Indonesia. Doktrin lama yang mengaitkan ateis dengan komunis dan luka lama 1965, menjadikan ancamanya nyawa yang nyata dan ditambah
+baik ateis fanatik bahkan ateis baru di Indonesia.
+
+Doktrin lama yang mengaitkan ateis dengan komunis dan luka lama 1965, menjadikan ancamanya nyawa yang nyata dan ditambah
 presekutor yang menuhankan petingan penguasa atas tafsir sila pertama yang disesatkan (gerakan ultra kanan & ekstermis agama).
 
-Kalau ateis melanggar sila pertama apakah akan masuk penjara ? masuk tergolong pidana atau perdata? emang melanggar pancasila itu sama dengan melanggar undang-undang?
+Kalau ateis melanggar sila pertama apakah akan masuk penjara ? tergolong pidana atau perdata? emang melanggar pancasila itu sama dengan melanggar undang-undang ?
 Wallahuallambishawab.
 
 > "Ketuhanan yang maha esa"
@@ -25,7 +27,7 @@ Kalau menurut KBBI (Kamus Besar Bahasa ~~Investor~~ Indonesia), **Ateisme**: pah
 
 Jadi mungkin kalau dibilang ateis dibilang pengikut setan, agak kurang cocok ya sebab setan hanya antagonis dari tuhan dalam drama yang disebut agama * **insert chuaks coki here** *. 
 
-_Back to topic_, Jika disimpulkan lebih lanjut. Ateisme itu engak percaya atas tuhan dan entitas gaib (Supra~~astrea~~natural,Setan, Jin, **you name it**).
+_Back to topic_, Jika disimpulkan lebih lanjut. Ateisme itu engak percaya atas tuhan dan entitas gaib (Supra~~astrea~~-natural,Setan, Jin, **you name it**).
 
 ### FAQ
 > Bagaimana kok ateis bisa dibilang pengikut komunis dan sebagainya?
@@ -41,7 +43,7 @@ Bisa saja orang mempelajari sosialisme dan naturalisme tanpa perlu menjadi ateis
 Bila ada kasus teroris, pernah muncul penyataan seperti ini ga "Teroris yang tak bertuhan" ? Kalo iya tandanya nih narasumber perlu baca ni tulisan.
 Tuhan mungkin benar menjadi pertimbangan lu untuk masuk neraka atau surga (dari tuhan yang mana lu pilih).
 
-Tapi moral adalah pertimbangan lu untuk sesama lu dalam berbuat entah apa itu baik atau engak buat dilakuin dalam kondisi itu. Jika tuhan adalah moral, maka manusia seharusnya tidak punya,keran moral untuk para mortal.
+Tapi moral adalah pertimbangan lu untuk sesama lu dalam berbuat entah apa itu baik atau engak buat dilakuin dalam kondisi itu. Jika tuhan adalah moral, maka manusia seharusnya tidak punya,karena moral untuk para mortal untuk tetap terus bertahan (tidak gampang mati karena ulah sesamanya).
 
 Mungkin bila ada yang menuduh orang ateis merupakan dalang dari berbagai terorisme terhadap agama ? coba baca berita ini dulu deh
 - [Terroris Bom Boston ternyata bukan Ateis](https://www.kompasiana.com/kuswara/5528d9b66ea83460028b45b8/teroris-boston-ternyata-bukan-atheis)
@@ -52,6 +54,18 @@ Singkatnya, Ateis absen moral illahiah (artinya moral yang ditentukan tuhan). At
 Orang menjadi ateis karena beberapa faktor seperti induksi filosofis bahkan bersikap bodo amat terhadap tuhan bahkan agama. Bila kita ringkas sebagai berikut:
 
 ### Ateisme Praktis
+Ateisme Praktis merupakan bentuk penjalani hidup tanpa mementingkan(baca: Mengabaikan) keberadaan tuhan ,serta tidak menerima dan menolak klaim tentang tuhan .
+Terdapat dua aliran Ateis Praktis yang sejenis : Apateis dan Ateis Pragmatis.
+
+- **Apateis** perbedaan dengan ateisme praktis, apatis tidak menganggap penyataan tuhan sesuatu yang relevan. 
+- **Ateis Pragmatis** menolak tuhan karena tidak memiliki kepentingan pragmatis dalam hidup.
+
+Singkatnya lebih sifat penolakan atau pengambaian terhadap tuhan.
+
+Menurut Zofia , Berikut 4 bentuk pratikal ateisme:
+- Dimana seseorang tidak mengikuti prinsip-prinsip ajaran agama.
+- 
+
 [Works in Progress]
 
 ### Ateisme Teoritis
