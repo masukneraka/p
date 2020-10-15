@@ -77,11 +77,11 @@ Menurut Zofia Zdybicka, Berikut 4 bentuk pratikal ateisme:
 ### Varian isme-isme selain Ateisme
 
 Selain ateisme, ada banyak isme-isme lainya yang menarik untuk diketahui perihal ketuhanan. Berikut ini beberapa daftarnya:
-- Agnostikisme
-- Anti-teisme
-- Deisme
-- Panteisme
--
+
+- [Agnostisisme](https://www.youtube.com/watch?v=WcTk7GkYlLg), bertuhan tanpa agama.
+- Deisme, percaya tuhan adalah sebab-akibat didunia namun tidak percaya mukzijat.
+- Panteisme, mengimani bahwa tuhan adalah alam semesta.
+- Teisme, percaya tuhan dan agama.
 
 [Works in Progress]
 
