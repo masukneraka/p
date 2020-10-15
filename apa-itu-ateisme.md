@@ -58,13 +58,15 @@ Ateisme Praktis merupakan bentuk penjalani hidup tanpa mementingkan(baca: Mengab
 Terdapat dua aliran Ateis Praktis yang sejenis : Apateis dan Ateis Pragmatis.
 
 - **Apateis** perbedaan dengan ateisme praktis, apatis tidak menganggap penyataan tuhan sesuatu yang relevan. 
-- **Ateis Pragmatis** menolak tuhan karena tidak memiliki kepentingan pragmatis dalam hidup.
+- **Ateis Pragmatis** menolak tuhan karena tidak memiliki kepentingan/kegunaan dalam hidup.
 
 Singkatnya lebih sifat penolakan atau pengambaian terhadap tuhan.
 
-Menurut Zofia , Berikut 4 bentuk pratikal ateisme:
+Menurut Zofia Zdybicka, Berikut 4 bentuk pratikal ateisme:
 - Dimana seseorang tidak mengikuti prinsip-prinsip ajaran agama.
-- 
+- Dimana seseorang kurang tertarik dengan tuhan dan dewa-dewi.
+- Ketidak tahuan akan Tuhan.
+- Dimana seseorang mengesampingkan tuhan dalam pembelajaran dan tindakan praktis secara individual dan sosial.
 
 [Works in Progress]
 
@@ -72,8 +74,14 @@ Menurut Zofia , Berikut 4 bentuk pratikal ateisme:
 
 [Works in Progress]
 
-
 ### Varian isme-isme selain Ateisme
+
+Selain ateisme, ada banyak isme-isme lainya yang menarik untuk diketahui perihal ketuhanan. Berikut ini beberapa daftarnya:
+- Agnostikisme
+- Anti-teisme
+- Deisme
+- Panteisme
+-
 
 [Works in Progress]
 
@@ -85,7 +93,30 @@ Hal ini memberikan bukti kebebasan agama Nol Besar (UUD 1945 Pasal 29 Ayat 2 , w
 
 [Works in Progress]
 
+## UCHR
+Universal Declaration of Human Rights (Isi Pernyataan Pernyataan Umum tentang Hak-Hak Asasi Manusia) antara lain mencantumkan, bahwa setiap orang mempunyai hak:
+
+- Hidup
+- Kemerdekaan dan keamanan badan
+- Diakui kepribadiannya
+- Memperoleh pengakuan yang sama dengan orang lain menurut hukum untuk mendapat jaminan hukum dalam perkara pidana, seperti diperiksa di muka umum, dianggap tidak bersalah kecuali ada bukti yang sah
+- Masuk dan keluar wilayah suatu Negara
+- Mendapatkan asylum
+- Mendapatkan suatu kebangsaan
+- Mendapatkan hak milik atas benda
+- Bebas mengutarakan pikiran dan perasaan
+- Bebas memeluk agama
+- Mengeluarkan pendapat
+- Berapat dan berkumpul
+- Mendapat jaminan sosial
+- Mendapatkan pekerjaan
+- Berdagang
+- Mendapatkan pendidikan
+- Turut serta dalam gerakan kebudayaan dalam masyarakat
+- Menikmati kesenian dan turut serta dalam kemajuan keilmuan
+
 ## Referensi
 
-- Bagini, Julian. 2018.Apa itu Ateisme ? Sebuah Pengantar Singkat. Manado. Globalindo.
+- Bagini, Julian.2018.Apa itu Ateisme ? Sebuah Pengantar Singkat.Manado.Globalindo.
+- Bakuni, Mikail.2016. God and The State.Yogyakarta.Second Hope.
 - [Kebebasan Beragama di Indonesia](https://rakyatrukun.com/1303/)
