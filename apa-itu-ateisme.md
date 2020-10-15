@@ -91,6 +91,9 @@ Seorang ateis banyak digambarkan secara suram, jahat dan tidak ada sari moral da
 
 Hal ini memberikan bukti kebebasan agama Nol Besar (UUD 1945 Pasal 29 Ayat 2 , wer ar u? dibilang emak ntar masuk neraka) dan lagi pula Agama juga bukan konten anak-anak sama mirip halnya zat adiktif seperti Rokok , Pornografi dan Sakaunya rindu sang pujangga hati xixixi.
 
+
+- [Bagaimana membuat ateis menjadi percaya Tuhan ?](https://www.youtube.com/watch?v=16zKVF1W_eg)
+
 [Works in Progress]
 
 ## UCHR
