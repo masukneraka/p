@@ -68,7 +68,6 @@ Menurut Zofia Zdybicka, Berikut 4 bentuk pratikal ateisme:
 - Ketidak tahuan akan Tuhan.
 - Dimana seseorang mengesampingkan tuhan dalam pembelajaran dan tindakan praktis secara individual dan sosial.
 
-[Works in Progress]
 
 ### Ateisme Teoritis
 
@@ -78,8 +77,9 @@ Menurut Zofia Zdybicka, Berikut 4 bentuk pratikal ateisme:
 
 Selain ateisme, ada banyak isme-isme lainya yang menarik untuk diketahui perihal ketuhanan. Berikut ini beberapa daftarnya:
 
-- [Agnostisisme](https://www.youtube.com/watch?v=WcTk7GkYlLg), bertuhan tanpa agama.
-- Deisme, percaya tuhan adalah sebab-akibat didunia namun tidak percaya mukzijat.
+- Agnostisisme, menganggap tuhan tidak dapat diketahui (kalau ateis udah nolak bahwa tuhan itu ga ada).
+- [Deisme](https://www.youtube.com/watch?v=WcTk7GkYlLg), percaya tuhan adalah sebab-akibat didunia namun tidak percaya mukzijat.
+- Gnostisisme, lawanya agnostisisme biasanya cenderung panteistik, deistik bahkan teistik.
 - Panteisme, mengimani bahwa tuhan adalah alam semesta.
 - Teisme, percaya tuhan dan agama.
 
@@ -91,6 +91,13 @@ Seorang ateis banyak digambarkan secara suram, jahat dan tidak ada sari moral da
 
 Hal ini memberikan bukti kebebasan agama Nol Besar (UUD 1945 Pasal 29 Ayat 2 , wer ar u? dibilang emak ntar masuk neraka) dan lagi pula Agama juga bukan konten anak-anak sama mirip halnya zat adiktif seperti Rokok , Pornografi dan Sakaunya rindu sang pujangga hati xixixi.
 
+Agama yang tidak dibarengi dengan teologi dan pemahan filsafatis menjadi racun dalam amer ditenggak untuk menjawab ketakutan dari alam setelah kematian.
+
+Seks yang dipuasakan oleh ancaman neraka, menjadikan banyak orang takut melakukan peluk cium dan kasih. Sebab sentuhan dari lawan jenis akan membuatmu hamil, mungkin tanpa agama prostitusi lebih menyenangkan tanpa takut neraka dan harga yang lebih pantas.
+
+Apakah tuhan perlu atau tidak ? entahlah, terkadang kita hanya perlu menjadi manusia ketimbang menjawab paradoks ilahiah.  
+
+Baca Juga (biar bisa punya pacar setuhan, **chuacks**):
 
 - [Bagaimana membuat ateis menjadi percaya Tuhan ?](https://www.youtube.com/watch?v=16zKVF1W_eg)
 
@@ -117,6 +124,13 @@ Universal Declaration of Human Rights (Isi Pernyataan Pernyataan Umum tentang Ha
 - Mendapatkan pendidikan
 - Turut serta dalam gerakan kebudayaan dalam masyarakat
 - Menikmati kesenian dan turut serta dalam kemajuan keilmuan
+
+## Penutup
+
+Tulisan ini tidak sempurna banyak hal-hal yang terlewat dalam pembahasan yang mungkin kurang membuat hasrat kepo anda tidak terpenuhi, maka saya ucapakan selamat riset dan berpusing ria hahaha. 
+
+Berikut suplemen bila anda tidak puas dengan referensi di bagian selanjutnya:
+- []()
 
 ## Referensi
 
