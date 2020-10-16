@@ -60,7 +60,7 @@ Terdapat dua aliran Ateis Praktis yang sejenis : Apateis dan Ateis Pragmatis.
 - **Apateis** perbedaan dengan ateisme praktis, apatis tidak menganggap penyataan tuhan sesuatu yang relevan. 
 - **Ateis Pragmatis** menolak tuhan karena tidak memiliki kepentingan/kegunaan dalam hidup.
 
-Singkatnya lebih sifat penolakan atau pengambaian terhadap tuhan.
+Singkatnya lebih sifat penolakan atau pengambaian terhadap tuhan dan bersifat alami seperti saat dilahirkan --  tanpa mengenal tuhan (implisit).
 
 Menurut Zofia Zdybicka, Berikut 4 bentuk pratikal ateisme:
 - Dimana seseorang tidak mengikuti prinsip-prinsip ajaran agama.
@@ -70,6 +70,8 @@ Menurut Zofia Zdybicka, Berikut 4 bentuk pratikal ateisme:
 
 
 ### Ateisme Teoritis
+
+Ateis versi lebih bersifat sadar serta argumentatif, alasan seperti epistomologi,ontologis,metafisika, psikologis, sosial-politik dan antropologis.
 
 [Works in Progress]
 
