@@ -104,11 +104,11 @@ Agama yang tidak dibarengi dengan teologi dan pemahan filsafatis menjadi racun d
 
 Seks yang dipuasakan oleh ancaman neraka, menjadikan banyak orang takut melakukan peluk cium dan kasih. Sebab sentuhan dari lawan jenis akan membuatmu hamil, mungkin tanpa agama prostitusi lebih menyenangkan tanpa takut neraka dan harga yang lebih pantas.
 
-Mantan pacarku pernah bilang kalau orang ateis itu lebih baik dari orang beragama, karena melakukan kebaikan tanpa berharap surga (yang memang tidak ada). Kembali lagi ya , Wallahualambiswabtes.
+Mantan pacarku pernah bilang kalau orang ateis itu lebih baik dari orang beragama, karena melakukan kebaikan tanpa berharap surga (yang memang tidak ada). Kembali lagi ya, ga semua kebaikan itu baik dan sebaliknya. Terkadang kita perlu kencing sambil berenang, agar tidak perlu berurusan dengan celana dalam.
 
-Apakah tuhan perlu atau tidak ? entahlah, terkadang kita hanya perlu menjadi manusia ketimbang menjawab paradoks ilahiah.  
+Apakah tuhan perlu atau tidak ? entahlah, terkadang kita hanya perlu menjadi manusia dan entahlah hidup ga berarti (karena kita yang membangun arti kematian kita, toh hidup gitu-gitu aja nafas, galau, mencoba gembira dihidup yang intinya penderitaan, jajan, tidur dan berulang xixixi ) ketimbang menjawab paradoks ilahiah, demo jilid hardcover atau teriak-teriak bumi datar. Terserah.  
 
-Baca Juga (biar bisa punya pacar setuhan, **chuacks**):
+Baca Juga (biar bisa punya pacar setuhan, **Awooo**):
 
 - [Bagaimana membuat ateis menjadi percaya Tuhan ?](https://www.youtube.com/watch?v=16zKVF1W_eg)
 
@@ -141,10 +141,14 @@ Universal Declaration of Human Rights (Isi Pernyataan Pernyataan Umum tentang Ha
 Tulisan ini tidak sempurna banyak hal-hal yang terlewat dalam pembahasan yang mungkin kurang membuat hasrat kepo anda tidak terpenuhi, maka saya ucapakan selamat riset dan berpusing ria hahaha. 
 
 Berikut suplemen bila anda tidak puas dengan referensi di bagian selanjutnya:
-- []()
+### Buku
+
+### Vidio
+- [Kenapa Menjadi Ateis / Tidak Beragama | Opini Pribadi](https://www.youtube.com/watch?v=FfIB5iOm4Qg)
+- [Menjadi Ateis di Indonesia](https://www.youtube.com/watch?v=ul1e8caCVxM)
 
 ## Referensi
 
 - Bagini, Julian.2018.Apa itu Ateisme ? Sebuah Pengantar Singkat.Manado.Globalindo.
-- Bakuni, Mikail.2016. God and The State.Yogyakarta.Second Hope.
+- Bakunin, Mikail.2016. God and The State.Yogyakarta.Second Hope.
 - [Kebebasan Beragama di Indonesia](https://rakyatrukun.com/1303/)
