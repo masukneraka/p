@@ -29,33 +29,6 @@ Jadi mungkin kalau dibilang ateis dibilang pengikut setan, agak kurang cocok ya 
 
 _Back to topic_, Jika disimpulkan lebih lanjut. Ateisme itu engak percaya atas tuhan dan entitas gaib (Supra~~astrea~~-natural,Setan, Jin, **you name it**).
 
-### FAQ
-> Bagaimana kok ateis bisa dibilang pengikut komunis dan sebagainya?
-
-Kebanyakan orang menjadi ateis cenderung diinduksi oleh filosofi sekuler: humanisme, rasionalisme dan naturalisme. Jadi tidak ada sifat spesifik dari ateis itu sendiri.
-
-Jadi apakah seorang komunis/sosialis itu termasuk ateis? jawabanya tidak, karena menjadi ateis merupakan sebuah kesadaran atas dirinya dan itu pilihan untuk menjadi ateis atau tidak.
-
-Bisa saja orang mempelajari sosialisme dan naturalisme tanpa perlu menjadi ateisme mungkin agnostik atau teisme, bila diumpakan beli martabak manis mau pakai mayonais atau bubuk balado, sepenuhnya terpisah.
-
-> Kalo lu ateis, gimana lu tau benar atau salah ? lu kan ga punya moral?
-
-Bila ada kasus teroris, pernah muncul penyataan seperti ini ga "Teroris yang tak bertuhan" ? Kalo iya tandanya nih narasumber perlu baca ni tulisan.
-Tuhan mungkin benar menjadi pertimbangan lu untuk masuk neraka atau surga (dari tuhan yang mana lu pilih).
-
-Tapi moral adalah pertimbangan lu untuk sesama lu dalam berbuat entah apa itu baik atau engak buat dilakuin dalam kondisi itu. Jika tuhan adalah moral, maka manusia seharusnya immortal(ga bisa mati),karena moral untuk para mortal (bisa mati) untuk tetap terus bertahan (tidak gampang mati karena ulah sesama mortal).
-
-Mungkin bila ada yang menuduh orang ateis merupakan dalang dari berbagai terorisme terhadap agama ? coba baca berita ini dulu deh
-- [Terroris Bom Boston ternyata bukan Ateis](https://www.kompasiana.com/kuswara/5528d9b66ea83460028b45b8/teroris-boston-ternyata-bukan-atheis)
-
-Singkatnya, Ateis absen moral illahiah (artinya moral yang ditentukan tuhan). Ateis bebas menerapkan definisi moral mereka mulai dari moral universal bahkan moral nihilistik.
-
-> Kalo lu ga percaya tuhan, siapa yang menciptakan alam semesta semuanya terlihat didesainkan dengan baikan ? Nenek lu ? lendir mantan lu ?
-
-Tuhan pendesain yang baik, mungkin kita perlu tahu usus buntu dimanusia itu gunanya apa ya? kok di sodara antara spesies kita terpakai ya? entalah, kembali lagi ke Wallahualambi desain iteratif, kek perusahaan rintisan saja mending _exit_(baca: likuidasi perusahaan) xixixi.
-
-Kan gak mungkin bingbang itu dari ketiadaan, sesuai hukum kekal energi dong. Energi tidak bisa diciptakan dan dimusnahkan, hanya berubah bentuk. Apakah sudah ada ruang dan waktu sebelum big bang ? apakah energi lebih duluan ruang dan waktu ?  ayam atau telur ? kecap atau kecup ? saya ga tahu , percaya tuhan saja sana xixixi.
-
 ## Dasar pemikiran
 
 Orang menjadi ateis karena beberapa faktor seperti induksi filosofis bahkan bersikap bodo amat terhadap tuhan bahkan agama. Bila kita ringkas sebagai berikut:
@@ -94,17 +67,44 @@ Selain ateisme, ada banyak isme-isme lainya yang menarik untuk diketahui perihal
 
 [Works in Progress]
 
+## FAQ
+> Bagaimana kok ateis bisa dibilang pengikut komunis dan sebagainya?
+
+Kebanyakan orang menjadi ateis cenderung diinduksi oleh filosofi sekuler: humanisme, rasionalisme dan naturalisme. Jadi tidak ada sifat spesifik dari ateis itu sendiri.
+
+Jadi apakah seorang komunis/sosialis itu termasuk ateis? jawabanya tidak, karena menjadi ateis merupakan sebuah kesadaran atas dirinya dan itu pilihan untuk menjadi ateis atau tidak.
+
+Bisa saja orang mempelajari sosialisme dan naturalisme tanpa perlu menjadi ateisme mungkin agnostik atau teisme, bila diumpakan beli martabak manis mau pakai mayonais atau bubuk balado, sepenuhnya terpisah.
+
+> Kalo lu ateis, gimana lu tau benar atau salah ? lu kan ga punya moral?
+
+Bila ada kasus teroris, pernah muncul penyataan seperti ini ga "Teroris yang tak bertuhan" ? Kalo iya tandanya nih narasumber perlu baca ni tulisan.
+Tuhan mungkin benar menjadi pertimbangan lu untuk masuk neraka atau surga (dari tuhan yang mana lu pilih).
+
+Tapi moral adalah pertimbangan lu untuk sesama lu dalam berbuat entah apa itu baik atau engak buat dilakuin dalam kondisi itu. Jika tuhan adalah moral, maka manusia seharusnya immortal(ga bisa mati),karena moral untuk para mortal (bisa mati) untuk tetap terus bertahan (tidak gampang mati karena ulah sesama mortal).
+
+Mungkin bila ada yang menuduh orang ateis merupakan dalang dari berbagai terorisme terhadap agama ? coba baca berita ini dulu deh
+- [Terroris Bom Boston ternyata bukan Ateis](https://www.kompasiana.com/kuswara/5528d9b66ea83460028b45b8/teroris-boston-ternyata-bukan-atheis)
+
+Singkatnya, Ateis absen moral illahiah (artinya moral yang ditentukan tuhan). Ateis bebas menerapkan definisi moral mereka mulai dari moral universal bahkan moral nihilistik.
+
+> Kalo lu ga percaya tuhan, siapa yang menciptakan alam semesta semuanya terlihat didesainkan dengan baikan ? Nenek lu ? lendir mantan lu ?
+
+Tuhan pendesain yang baik, mungkin kita perlu tahu usus buntu dimanusia itu gunanya apa ya? kok di sodara antara spesies kita terpakai ya? entalah, kembali lagi ke Wallahualambi desain iteratif, kek perusahaan rintisan saja mending _exit_(baca: likuidasi perusahaan) xixixi.
+
+Kan gak mungkin bingbang itu dari ketiadaan, sesuai hukum kekal energi dong. Energi tidak bisa diciptakan dan dimusnahkan, hanya berubah bentuk. Apakah sudah ada ruang dan waktu sebelum big bang ? apakah energi lebih duluan ruang dan waktu ?  ayam atau telur ? kecap atau kecup ? saya ga tahu , percaya tuhan saja sana xixixi.
+
 ## Keluh Kesah
 
 Seorang ateis banyak digambarkan secara suram, jahat dan tidak ada sari moral dalam dirinya, stigma seperti ini umumnya merebak ke nalar orang tua yang menekan anaknya untuk beragama serta tak ayal orang tua menjadi Tuhan bagi anaknya sendiri.
 
-Hal ini memberikan bukti kebebasan agama Nol Besar (UUD 1945 Pasal 29 Ayat 2 , wer ar u? dibilang emak ntar masuk neraka) dan lagi pula Agama juga bukan konten anak-anak sama mirip halnya zat adiktif seperti Rokok , Pornografi dan Sakaunya rindu sang pujangga hati xixixi.
+Hal ini memberikan bukti kebebasan agama Nol Besar (UUD 1945 Pasal 29 Ayat 2 , wer ar u? dibilang emak ntar masuk neraka, hukum oloh lebih sakit daripada hukum dunyah **stonks**) dan lagi pula Agama juga bukan konten anak-anak sama mirip halnya zat adiktif seperti Rokok , Pornografi dan Sakaunya rindu sang pujangga hati xixixi.
 
 Agama yang tidak dibarengi dengan teologi dan pemahan filsafatis menjadi racun dalam amer ditenggak untuk menjawab ketakutan dari alam setelah kematian.
 
 Seks yang dipuasakan oleh ancaman neraka, menjadikan banyak orang takut melakukan peluk cium dan kasih. Sebab sentuhan dari lawan jenis akan membuatmu hamil, mungkin tanpa agama prostitusi lebih menyenangkan tanpa takut neraka dan harga yang lebih pantas.
 
-Mantan pacarku pernah bilang kalau orang ateis itu lebih baik dari orang beragama, karena melakukan kebaikan tanpa berharap surga (yang memang tidak ada). Kembali lagi ya, ga semua kebaikan itu baik dan sebaliknya. Terkadang kita perlu kencing sambil berenang, agar tidak perlu berurusan dengan celana dalam.
+Mantan pacarku pernah bilang kalau orang ateis itu lebih baik dari orang beragama, karena melakukan kebaikan tanpa berharap surga (yang memang tidak ada). Kembali lagi ya, ga semua kebaikan itu baik dan sebaliknya.
 
 Apakah tuhan perlu atau tidak ? entahlah, terkadang kita hanya perlu menjadi manusia dan entahlah hidup ga berarti (karena kita yang membangun arti kematian kita, toh hidup gitu-gitu aja nafas, galau, mencoba gembira dihidup yang intinya penderitaan, jajan, tidur dan berulang xixixi ) ketimbang menjawab paradoks ilahiah, demo jilid hardcover atau teriak-teriak bumi datar. Terserah.  
 
@@ -141,7 +141,15 @@ Universal Declaration of Human Rights (Isi Pernyataan Pernyataan Umum tentang Ha
 Tulisan ini tidak sempurna banyak hal-hal yang terlewat dalam pembahasan yang mungkin kurang membuat hasrat kepo anda tidak terpenuhi, maka saya ucapakan selamat riset dan berpusing ria hahaha. 
 
 Berikut suplemen bila anda tidak puas dengan referensi di bagian selanjutnya:
+
 ### Buku
+- Dawkins, Richard.2006.God Delusion.
+- Harari, Yuval Noah.2011.Sapiens.
+- Harari, Yuval Noah.2015.Homo Deus.
+
+### Artikel
+- [Mengapa Ateis tidak rasional yang dikira?](https://theconversation.com/mengapa-ateis-tidak-serasional-seperti-yang-diduga-banyak-orang-104414)
+- [Bolehkan menjadi ateis di indonesia](https://www.hukumonline.com/klinik/detail/ulasan/lt4f4545a9b77df/bolehkah-menjadi-ateis-di-indonesia-/)
 
 ### Vidio
 - [Kenapa Menjadi Ateis / Tidak Beragama | Opini Pribadi](https://www.youtube.com/watch?v=FfIB5iOm4Qg)
