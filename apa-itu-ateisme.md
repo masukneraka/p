@@ -106,13 +106,13 @@ Seks yang dipuasakan oleh ancaman neraka, menjadikan banyak orang takut melakuka
 
 Mantan pacarku pernah bilang kalau orang ateis itu lebih baik dari orang beragama, karena melakukan kebaikan tanpa berharap surga (yang memang tidak ada). Kembali lagi ya, ga semua kebaikan itu baik dan sebaliknya.
 
-Apakah tuhan perlu atau tidak ? entahlah, terkadang kita hanya perlu menjadi manusia dan entahlah hidup ga berarti (karena kita yang membangun arti kematian kita, toh hidup gitu-gitu aja nafas, galau, mencoba gembira dihidup yang intinya penderitaan, jajan, tidur dan berulang xixixi ) ketimbang menjawab paradoks ilahiah, demo jilid hardcover atau teriak-teriak bumi datar. Terserah.  
+Apakah tuhan perlu atau tidak ? entahlah, terkadang kita hanya perlu menjadi manusia dan entahlah hidup ga berarti (karena kita yang membangun arti kematian kita, toh hidup gitu-gitu aja nafas, galau, mencoba gembira dihidup yang intinya penderitaan, jajan, tidur dan berulang xixixi ) ketimbang menjawab paradoks ilahiah, demo jilid hardcover atau teriak-teriak bumi datar. Terserah.
+
+Atas nama Tuhan, manusia menjadi tuhan bagi sesamanya sesuai dengan alkitabnya, halus lembut pendeta dengan hatinya yang berdarah-darah atas perintah tuhan.
 
 Baca Juga (biar bisa punya pacar setuhan, **Awooo**):
 
 - [Bagaimana membuat ateis menjadi percaya Tuhan ?](https://www.youtube.com/watch?v=16zKVF1W_eg)
-
-[Works in Progress]
 
 ## UCHR
 Universal Declaration of Human Rights (Isi Pernyataan Pernyataan Umum tentang Hak-Hak Asasi Manusia) antara lain mencantumkan, bahwa setiap orang mempunyai hak:
@@ -142,7 +142,7 @@ Tulisan ini tidak sempurna banyak hal-hal yang terlewat dalam pembahasan yang mu
 
 Berikut suplemen bila anda tidak puas dengan referensi di bagian selanjutnya:
 
-### Buku
+### Jadi Ateis karena Buku, beragama juga gituh.
 - Dawkins, Richard.2006.God Delusion.
 - Harari, Yuval Noah.2011.Sapiens.
 - Harari, Yuval Noah.2015.Homo Deus.
@@ -154,6 +154,9 @@ Berikut suplemen bila anda tidak puas dengan referensi di bagian selanjutnya:
 ### Vidio
 - [Kenapa Menjadi Ateis / Tidak Beragama | Opini Pribadi](https://www.youtube.com/watch?v=FfIB5iOm4Qg)
 - [Menjadi Ateis di Indonesia](https://www.youtube.com/watch?v=ul1e8caCVxM)
+
+### Aplikasi
+- [Atheos](http://www.atheos-app.com/)
 
 ## Referensi
 
