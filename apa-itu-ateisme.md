@@ -51,7 +51,13 @@ Menurut Zofia Zdybicka, Berikut 4 bentuk pratikal ateisme:
 
 ### Ateisme Teoritis
 
-Ateis versi lebih bersifat sadar serta argumentatif, alasan seperti epistomologi,ontologis,metafisika, psikologis, sosial-politik dan antropologis.
+Ateis versi lebih bersifat sadar serta argumentatif, alasan seperti:
+-Epistomologis
+-Ontologi
+-Psikologis
+-Sosial-Politik
+- Antropolgis
+
 
 [Works in Progress]
 
